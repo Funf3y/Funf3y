@@ -1,4 +1,5 @@
 I'm Funfey, I'm new here.
+Most of my stuff is private, sorry.
 
 I'm going to leave the automatic introduction because I can, lol.
 
